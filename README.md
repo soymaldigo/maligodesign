@@ -1,2 +1,0 @@
-# maligodesign
-My portfolio
